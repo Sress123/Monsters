@@ -4,4 +4,4 @@ we are fucking monsters!!
 
 ## Subheader
 
-I am wathing videos on youtube.
+I am watching videos on youtube.
